@@ -12,7 +12,7 @@ I am Saurabh Tiwari student at Chandigarh University and making this project by 
 
 ### Mail : 21MCA2643@cuchd.in
 
-### WhatsApp: **+91 6392636316** (Helping 24*7) **
+### WhatsApp: **+91 6392636316** 
 
 
 
